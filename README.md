@@ -1,1 +1,1 @@
-[💥💥สมัครสมาชิก](https://play.sexybaccarat.live/?action=register&code=SBcom-Blog)
+[สมัครสมาชิก](https://play.sexybaccarat.live/?action=register&code=SBcom-Blog)
